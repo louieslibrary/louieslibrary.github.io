@@ -1,5 +1,5 @@
 ---
-title: Review of keeper of lost cities
+title: Review of Keeper of Lost Cities
 date: 2023-01-07
 ---
 
