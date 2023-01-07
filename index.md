@@ -1,4 +1,5 @@
 ---
-title: Welcome to my blog
+title: Louie's Library
 ---
 
+Welcome to Louie's Library!
