@@ -4,7 +4,9 @@ date: 2023-01-08
 ---
 
 # Gregor The Overlander
+by Suzanne Collins
 
+<img src="/images/Gregor-The-Overlander.jpg" alt="Cover image" width="300"/>
 
 ### What is this book about?
 This book is about Gregor, who finds a mysterious shaft in his laundry room. He discovers that he is the warrior in an ancient prophecy. He must fight giant rats to find his father who disappeared years ago. This book is fast paced and makes your heart beat. I would recommend this book to 7-11 year olds.
