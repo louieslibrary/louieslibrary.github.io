@@ -1,6 +1,6 @@
 ---
 date: 2023-01-14
-title: Varjak-Paw-book-review
+title: Varjak Paw book review
 ---
 
 # Varjak Paw
