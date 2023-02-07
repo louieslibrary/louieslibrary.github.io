@@ -1,6 +1,6 @@
 ---
 date: 2023-02-07
-title: Kay's-Anatomy-Book-Review-(100-views-special-edition)
+title: Kay's Anatomy Book Review (100 views special edition)
 ---
 
 ### Kay’s Anatomy
