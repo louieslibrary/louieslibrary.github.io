@@ -17,7 +17,7 @@ I usually don't make book reviews about non-fiction books but this time I am. Th
 2. The Ancient Egyptians were the first people to know how to fix broken bones. Talk about an old cure!
 3. Your nerves send messages at 250 miles per hour. For reference, that’s more than three times the motorway speed limit!
 4.  Your brain can process 400 billion things in half a second (more or less).
-5. There are 500 million hairs on your body. That’s the same number of people in Ireland (give or take a few).
+5. There are 5 million hairs on your body. That’s the same number of people in Ireland (give or take a few).
 
 ### Who would you recommend this to and why?
 Anyone! This book is overall friendly to all ages and has not got any gory or scary bits. I would say anyone from 5-13 can read this book.
