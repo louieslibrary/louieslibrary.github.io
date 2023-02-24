@@ -1,6 +1,6 @@
 ---
 date: 2023-02-24
-title: Spaceboy-Book-Review
+title: Spaceboy Book Review
 ---
 
 ## Spaceboy
