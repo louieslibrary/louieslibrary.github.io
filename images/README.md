@@ -1,1 +1,1 @@
-This is where to put the images.
+Put he images in here, fools!
