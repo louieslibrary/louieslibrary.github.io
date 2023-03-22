@@ -1,1 +1,1 @@
-Put he images in here, fools!
+Put the images in here, fools!
